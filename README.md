@@ -21,8 +21,7 @@
 
 ### **Languages and Tools**
 
-<img width="35px" height="35px" src="https://img.icons8.com/color/48/000000/css3.png"/>
-<img width="35px" height="35px" src="https://img.icons8.com/color/48/000000/sass.png"/>
+<img width="35px" height="35px" src="https://img.icons8.com/color/48/000000/css3.png"/> <img width="35px" height="35px" src="https://img.icons8.com/color/48/000000/sass.png"/>
 <img width="35px" height="35px" src="https://img.icons8.com/color/48/000000/html-5.png"/>
 <img width="35px" height="35px" src="https://img.icons8.com/color/48/000000/javascript.png"/>
 <img width="35px" height="35px" src="https://img.icons8.com/color/48/000000/typescript.png"/>
