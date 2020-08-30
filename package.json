@@ -1,0 +1,14 @@
+{
+  "name": "kelvin0712",
+  "version": "1.0.0",
+  "description": "My profile",
+  "main": "index.js",
+  "scripts": {
+    "generate": "node index.js"
+  },
+  "author": "kelvin",
+  "license": "ISC",
+  "dependencies": {
+    "axios": "^0.20.0"
+  }
+}
