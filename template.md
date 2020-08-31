@@ -4,8 +4,8 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2020 Goals: Contribute to Open Source projects
-- ⚡ Fun fact: I love to table tennis, tennis, basketball and photographing.
-
+- ⚡ Fun fact: I love to play table tennis, tennis, basketball and photographing.
+ 
 ### **Connect with me**
 
 [<img align="left" alt="kelvin | Instagram" width="30px" src="https://img.icons8.com/fluent/48/000000/domain.png"/>](http://kelvinnguyen97.com/)
