@@ -2,6 +2,8 @@
 
 ## I'm a Developer, and Pianist!
 
+#
+
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2020 Goals: Contribute to Open Source projects
 - ⚡ Fun fact: I love to table tennis, tennis, basketball and photographing.
@@ -36,10 +38,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**Time to improve is limited. The clock is always on and doesn't care if you don't feel like it. Someone else does and they're passing you by.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**William James Moore**
 
 ---
 
@@ -49,6 +51,3 @@ _**{%QUOTE%}**_
   <img align="left" alt="kelvin's Github Stats" src="https://github-readme-stats.codestackr.vercel.app/api?username=kelvin0712&show_icons=true&hide_border=true&count_private=true" />
 
 </details>
-
-
-
