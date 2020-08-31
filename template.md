@@ -2,8 +2,6 @@
 
 ## I'm a Developer, and Pianist!
 
-#
-
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2020 Goals: Contribute to Open Source projects
 - ⚡ Fun fact: I love to table tennis, tennis, basketball and photographing.
