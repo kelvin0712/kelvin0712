@@ -2,12 +2,10 @@
 
 ## I'm a Developer, and Pianist!
 
-#
-
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2020 Goals: Contribute to Open Source projects
 - ⚡ Fun fact: I love to play table tennis, tennis, basketball and photographing.
-
+ 
 ### **Connect with me**
 
 [<img align="left" alt="kelvin | Instagram" width="30px" src="https://img.icons8.com/fluent/48/000000/domain.png"/>](http://kelvinnguyen97.com/)
@@ -38,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Time to improve is limited. The clock is always on and doesn't care if you don't feel like it. Someone else does and they're passing you by.**_
+_**The beginning of freedom is the realization that you are not the possessing entity the thinker.**_
 <br/>
 <br />
-**William James Moore**
+**Eckhart Tolle**
 
 ---
 
