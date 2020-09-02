@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The beginning of freedom is the realization that you are not the possessing entity the thinker.**_
+_**Fear kills more dreams than failure ever will.**_
 <br/>
 <br />
-**Eckhart Tolle**
+**Dale Patridge**
 
 ---
 
