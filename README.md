@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Fear kills more dreams than failure ever will.**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Dale Patridge**
+**{%AUTHOR%}**
 
 ---
 
