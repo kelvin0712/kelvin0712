@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**Your life does not get better by chance. It gets better by change.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Jim Rohn**
 
 ---
 
