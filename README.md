@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Ignition (n): The motivational process that occurs when your identity becomes linked to a long-term vision of your future. Triggers significant amounts of unconscious energy; usually marked by the realization: That is who I want to be.**_
+_**We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.**_
 <br/>
 <br />
-** Daniel Coyle**
+**Sheryl Sandberg**
 
 ---
 
