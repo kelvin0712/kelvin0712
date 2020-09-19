@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**I hated every minute of training, but I said, ‘Don’t quit. Suffer now and live the rest of your life as a champion.'**_
+_**I always advice people - Don't wait ! Do something when you are young, when you have no responsibilities. Invest time in yourself to have great Experiences that are going to enrich you, then you can't possibly lose.**_
 <br/>
 <br />
-**Mohamad Ali**
+**Steve Jobs**
 
 ---
 
