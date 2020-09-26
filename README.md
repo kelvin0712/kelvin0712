@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Time to improve is limited. The clock is always on and doesn't care if you don't feel like it. Someone else does and they're passing you by.**_
+_**Whether you think you can or think you can’t, you’re right....**_
 <br/>
 <br />
-**William James Moore**
+**Henry Ford**
 
 ---
 
