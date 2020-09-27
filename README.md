@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Whether you think you can or think you can’t, you’re right....**_
+_**Not every day is going to offer us a chance to save somebody's life, but every day offers us an opportunity to affect one.**_
 <br/>
 <br />
-**Henry Ford**
+**Mark Bezos**
 
 ---
 
