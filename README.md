@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Don't count the days; make the days count.**_
+_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
 <br/>
 <br />
-**Mohamad Ali**
+**Lorii Myers**
 
 ---
 
