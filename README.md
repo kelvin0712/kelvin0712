@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
+_**The beginning of freedom is the realization that you are not the possessing entity the thinker.**_
 <br/>
 <br />
-**Lorii Myers**
+**Eckhart Tolle**
 
 ---
 
