@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When it comes to winning, you need the skill and the will.**_
+_**Things are not bad in themselves, but our cowardice makes them so.**_
 <br/>
 <br />
-**Frank Tyger**
+**Michel de Montaigne**
 
 ---
 
