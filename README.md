@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Things are not bad in themselves, but our cowardice makes them so.**_
+_**There's such a thin line between winning and losing.**_
 <br/>
 <br />
-**Michel de Montaigne**
+**John R. Tunis**
 
 ---
 
