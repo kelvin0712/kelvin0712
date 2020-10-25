@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Named must your fear be before banish it you can.**_
+_**Man needs his difficulties because they are necessary to enjoy success.**_
 <br/>
 <br />
-**Yoda**
+**A. P. J. Abdul Kalam**
 
 ---
 
