@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Man needs his difficulties because they are necessary to enjoy success.**_
+_**Keep a positive mind. Remember, a failed attempt doesn't make you a failure—giving up does.**_
 <br/>
 <br />
-**A. P. J. Abdul Kalam**
+**Lorii Myers**
 
 ---
 
