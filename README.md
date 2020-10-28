@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you cannot do great things, do small things in a great way.**_
+_**Don't be tempted to break momentum—work through it.**_
 <br/>
 <br />
-**Napoleon Hill**
+**Lorii Myers**
 
 ---
 
