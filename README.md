@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**There is no one right way. Just figure out what works for you!**_
+_**If we ever stop thinking about the person we want to become, we stop learning and taking risks.**_
 <br/>
 <br />
-**Lorii Myers**
+**Sally Blount**
 
 ---
 
