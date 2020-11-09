@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If we ever stop thinking about the person we want to become, we stop learning and taking risks.**_
+_**Things are not bad in themselves, but our cowardice makes them so.**_
 <br/>
 <br />
-**Sally Blount**
+**Michel de Montaigne**
 
 ---
 
