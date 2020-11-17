@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The last time doesn't exist. It's only this time. And everything is going to be different this time. There's only now.**_
+_**Excellence prospers in the absence of excuses.**_
 <br/>
 <br />
-**Bill Murray**
+**Lorii Myers**
 
 ---
 
