@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do. So throw off the bowlines. Sail away from the safe harbor. Catch the trade winds in your sails. Explore. Dream. Discover.**_
+_**It isn't what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.**_
 <br/>
 <br />
-**Mark Twain**
+**Dale Carnegie**
 
 ---
 
