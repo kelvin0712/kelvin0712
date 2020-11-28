@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The journey of a thousand miles begins with one step.**_
+_**The human mind and body are truly extraordinary. They are the quintessence of excellence in motion. We talk, touch, see, hear, taste, smell, and feel. We dream, aspire, and become. All that we are is mind and body and spirit-that is our universe.**_
 <br/>
 <br />
-**Lao Tzu**
+**Lorii Myers**
 
 ---
 
