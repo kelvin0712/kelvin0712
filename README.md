@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If we are not stretching, we are not growing. If we are not growing, we are probably not fulfilling our potential. The only person in this room that knows your potential is you.**_
+_**The best way to predict the future is to create it.**_
 <br/>
 <br />
-**Kevin Turner **
+**Abraham Lincoln**
 
 ---
 
