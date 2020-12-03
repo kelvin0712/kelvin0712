@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**A successful man is one who can lay a firm foundation with the bricks that others throw at him.**_
+_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
 <br/>
 <br />
-**Sidney Greenberg**
+**Lorii Myers**
 
 ---
 
