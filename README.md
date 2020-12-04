@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
+_**What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!**_
 <br/>
 <br />
-**Lorii Myers**
+**Larry Page**
 
 ---
 
