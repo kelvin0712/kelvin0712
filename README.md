@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!**_
+_**Stop complaining. Start creating.**_
 <br/>
 <br />
-**Larry Page**
+**Dale Patridge**
 
 ---
 
