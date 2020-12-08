@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Hang Out with People Who are Better than You.**_
+_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
 <br/>
 <br />
-**Warren Buffett**
+**Mohamad Ali**
 
 ---
 
