@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
+_**If you cannot do great things, do small things in a great way.**_
 <br/>
 <br />
-**Mohamad Ali**
+**Napoleon Hill**
 
 ---
 
