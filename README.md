@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you cannot do great things, do small things in a great way.**_
+_**Find a purpose in life so big it will challenge every capacity to be at your best.**_
 <br/>
 <br />
-**Napoleon Hill**
+**David O. McKay**
 
 ---
 
