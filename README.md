@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Vision without action is daydream. Action without vision is nightmare..**_
+_**I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.'**_
 <br/>
 <br />
-**Japanese Proverb**
+**Mohamad Ali**
 
 ---
 
