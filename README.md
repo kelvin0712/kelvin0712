@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You either walk inside your story and own it or you stand outside your story and hustle for your worthiness.**_
+_**A successful man is one who can lay a firm foundation with the bricks that others throw at him.**_
 <br/>
 <br />
-**Brene Brown**
+**Sidney Greenberg**
 
 ---
 
