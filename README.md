@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Let us think the unthinkable, let us do the undoable, let us prepare to grapple with the ineffable itself, and see if we may not eff it after all.**_
+_**What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!**_
 <br/>
 <br />
-**Douglas Adams**
+**Larry Page**
 
 ---
 
