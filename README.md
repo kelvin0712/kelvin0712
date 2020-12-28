@@ -36,13 +36,10 @@
 
 ### **Daily quote**
 
-_**One does not accumulate but eliminate.
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.**_
+_**If you cannot do great things, do small things in a great way.**_
 <br/>
 <br />
-**Bruce Lee**
+**Napoleon Hill**
 
 ---
 
