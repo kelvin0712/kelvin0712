@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
+_**You must have a positive self perception in order to transcend anything.**_
 <br/>
 <br />
-**Christiane Northrup**
+**Steve Maraboli**
 
 ---
 
