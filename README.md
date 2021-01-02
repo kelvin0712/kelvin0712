@@ -2,8 +2,6 @@
 
 ## I'm a Developer, and Pianist!
 
-#
-
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2021 Goals: Contribute more to the community, and do more Open Source projects.
 - ⚡ Fun fact: I love to table tennis, tennis, basketball and photographing.
@@ -38,10 +36,18 @@
 
 ### **Daily quote**
 
+<<<<<<< HEAD
 _**{%QUOTE%}**_
 <br/>
 <br />
 **{%AUTHOR%}**
+=======
+_**Do not let what you cannot do interfere with what you can do.**_
+<br/>
+<br />
+**John Wooden**
+
+> > > > > > > c1538b77a59d5007cf5d2608c886746b7b114960
 
 ---
 
