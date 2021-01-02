@@ -36,18 +36,10 @@
 
 ### **Daily quote**
 
-<<<<<<< HEAD
 _**{%QUOTE%}**_
 <br/>
 <br />
-**{%AUTHOR%}**
-=======
-_**Do not let what you cannot do interfere with what you can do.**_
-<br/>
-<br />
-**John Wooden**
-
-> > > > > > > c1538b77a59d5007cf5d2608c886746b7b114960
+**{%AUTHOR%}**0
 
 ---
 
