@@ -5,7 +5,7 @@
 #
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2020 Goals: Contribute to Open Source projects
+- 🥅 2021 Goals: Contribute more to the community, and do more Open Source projects.
 - ⚡ Fun fact: I love to table tennis, tennis, basketball and photographing.
 
 ### **Connect with me**

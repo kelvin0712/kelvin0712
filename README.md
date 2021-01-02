@@ -5,7 +5,7 @@
 #
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2020 Goals: Contribute to Open Source projects
+- 🥅 2021 Goals: Contribute more to the community, and do more Open Source projects.
 - ⚡ Fun fact: I love to table tennis, tennis, basketball and photographing.
 
 ### **Connect with me**
@@ -38,10 +38,10 @@
 
 ### **Daily quote**
 
-_**Time to improve is limited. The clock is always on and doesn't care if you don't feel like it. Someone else does and they're passing you by.**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**William James Moore**
+**{%AUTHOR%}**
 
 ---
 
