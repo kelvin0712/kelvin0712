@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**Core passions and aspirations should be consistent and in sync.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Lorii Myers**
 
 ---
 
