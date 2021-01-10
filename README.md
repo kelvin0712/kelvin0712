@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Where there is ruin, there is hope for a treasure.**_
+_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
 <br/>
 <br />
-**Rumi**
+**Lorii Myers**
 
 ---
 
