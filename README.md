@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**There's such a thin line between winning and losing.**_
+_**Think ahead. Don't let day-to-day operations drive out planning.**_
 <br/>
 <br />
-**John R. Tunis**
+**Donald Rumsfeld**
 
 ---
 
