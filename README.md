@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You must have a positive self perception in order to transcend anything.**_
+_**The last time doesn't exist. It's only this time. And everything is going to be different this time. There's only now.**_
 <br/>
 <br />
-**Steve Maraboli**
+**Bill Murray**
 
 ---
 
