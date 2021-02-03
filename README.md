@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winners lose much more often than losers. So if you keep losing but you're still trying, keep it up! You.. Re right on track.**_
+_**He who is not courageous enough to take risks will accomplish nothing in life.**_
 <br/>
 <br />
-**Matthew Keith Groves**
+**Mohamad Ali**
 
 ---
 
