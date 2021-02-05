@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When it comes to winning, you need the skill and the will.**_
+_**When you win, say nothing. When you lose, say less.**_
 <br/>
 <br />
-**Frank Tyger**
+**Paul Brown**
 
 ---
 
