@@ -36,10 +36,13 @@
 
 ### **Daily quote**
 
-_**When you win, say nothing. When you lose, say less.**_
+_**One does not accumulate but eliminate.
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.**_
 <br/>
 <br />
-**Paul Brown**
+**Bruce Lee**
 
 ---
 
