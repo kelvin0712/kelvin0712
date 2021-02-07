@@ -36,13 +36,10 @@
 
 ### **Daily quote**
 
-_**One does not accumulate but eliminate.
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.**_
+_**It wasn't raining when Noah built the ark..**_
 <br/>
 <br />
-**Bruce Lee**
+**Howard Ruff**
 
 ---
 
