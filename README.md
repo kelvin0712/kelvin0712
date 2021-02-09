@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Let our advance worrying become advance thinking and planning.**_
+_**Named must your fear be before banish it you can.**_
 <br/>
 <br />
-**Winston Churchill**
+**Yoda**
 
 ---
 
