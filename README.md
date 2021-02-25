@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Once your excuses are gone, you will simply have to settle for being awesome!**_
+_**You can't succeed coming to the potluck with only a fork.**_
 <br/>
 <br />
-**Lorii Myers**
+**Dave Liniger**
 
 ---
 
