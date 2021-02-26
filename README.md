@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You can't succeed coming to the potluck with only a fork.**_
+_**Failure is the condiment that gives success its flavor.**_
 <br/>
 <br />
-**Dave Liniger**
+**Truman Capote**
 
 ---
 
