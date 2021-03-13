@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Whether you think you can or think you can't, you're right..**_
+_**Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!**_
 <br/>
 <br />
-**Henry Ford**
+**Daireth Winehouse**
 
 ---
 
