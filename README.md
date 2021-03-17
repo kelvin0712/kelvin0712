@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.**_
+_**You will never win if you never begin.**_
 <br/>
 <br />
-**Zaha Hadid**
+**Helen Rowland**
 
 ---
 
