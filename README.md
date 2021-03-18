@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You will never win if you never begin.**_
+_**A quitter never wins and a winner never quits**_
 <br/>
 <br />
-**Helen Rowland**
+**Napoleon Hill**
 
 ---
 
