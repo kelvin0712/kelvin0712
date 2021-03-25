@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You make a living by what you earn; you make a life by what you give.**_
+_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
 <br/>
 <br />
-**Winston Churchill**
+**Christiane Northrup**
 
 ---
 
