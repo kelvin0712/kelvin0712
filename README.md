@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
+_**Great things are done by a series of small things brought together.**_
 <br/>
 <br />
-**Mohamad Ali**
+**Vincent Van Gogh**
 
 ---
 
