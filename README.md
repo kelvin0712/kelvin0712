@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The best way to predict the future is to create it.**_
+_**Sustenance! Your health is always the best prescription.**_
 <br/>
 <br />
-**Abraham Lincoln**
+**Lorii Myers**
 
 ---
 
