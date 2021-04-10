@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stop complaining. Start creating.**_
+_**Winning is not everything, but the effort to win is.**_
 <br/>
 <br />
-**Dale Patridge**
+**Zig Ziglar**
 
 ---
 
