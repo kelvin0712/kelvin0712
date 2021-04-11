@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winning is not everything, but the effort to win is.**_
+_**You defeated me But you won't defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).**_
 <br/>
 <br />
-**Zig Ziglar**
+**Edmund Hillary**
 
 ---
 
