@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.**_
+_**Remove the temptation to settle for anything short of what you deserve.**_
 <br/>
 <br />
-**Sheryl Sandberg**
+**Lorii Myers**
 
 ---
 
