@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Remove the temptation to settle for anything short of what you deserve.**_
+_**Many a false step was made by standing still.**_
 <br/>
 <br />
-**Lorii Myers**
+**Fortune Cookie**
 
 ---
 
