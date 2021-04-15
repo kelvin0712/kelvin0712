@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Many a false step was made by standing still.**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 <br/>
 <br />
-**Fortune Cookie**
+**Honore de Balzac**
 
 ---
 
