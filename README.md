@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Core passions and aspirations should be consistent and in sync.**_
+_**Persistence is very important. You should not give up unless you are forced to give up.**_
 <br/>
 <br />
-**Lorii Myers**
+**Elon Musk**
 
 ---
 
