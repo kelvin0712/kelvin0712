@@ -36,7 +36,7 @@
 
 ### **Daily quote**
 
-_**Once your excuses are gone, you will simply have to settle for being awesome!**_
+_**An aspirational diet will have you dreaming of success; but it's the attachment of expectations and tangible goals that feeds the desire, persistence, and fortitude required to make the win.**_
 <br/>
 <br />
 **Lorii Myers**
