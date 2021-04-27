@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The best way to predict the future is to create it.**_
+_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
 <br/>
 <br />
-**Abraham Lincoln**
+**Greg Child**
 
 ---
 
