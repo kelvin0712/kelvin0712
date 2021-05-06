@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Do not be afraid to give up the good for the great.**_
+_**We don't have to do all of it alone. We were never meant to.**_
 <br/>
 <br />
-**Kenny Rogers**
+**Brene Brown**
 
 ---
 
