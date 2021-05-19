@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Time to improve is limited. The clock is always on and doesn't care if you don't feel like it. Someone else does and they're passing you by.**_
+_**You make a living by what you earn; you make a life by what you give.**_
 <br/>
 <br />
-**William James Moore**
+**Winston Churchill**
 
 ---
 
