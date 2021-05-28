@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 <br/>
 <br />
-**Isaac Lidsky**
+**Japanese Proverb**
 
 ---
 
