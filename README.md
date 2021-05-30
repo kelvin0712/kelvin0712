@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
+_**When you win, say nothing. When you lose, say less.**_
 <br/>
 <br />
-**Jack Ma**
+**Paul Brown**
 
 ---
 
