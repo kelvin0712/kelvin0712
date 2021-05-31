@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When you win, say nothing. When you lose, say less.**_
+_**We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light**_
 <br/>
 <br />
-**Paul Brown**
+**Mary Dunbar**
 
 ---
 
