@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Vulnerability is not winning or losing; it's having the courage to show up and be seen when we have no control over the outcome.**_
+_**Named must your fear be before banish it you can.**_
 <br/>
 <br />
-**Brene Brown**
+**Yoda**
 
 ---
 
