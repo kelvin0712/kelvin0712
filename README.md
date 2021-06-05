@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Named must your fear be before banish it you can.**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 <br/>
 <br />
-**Yoda**
+**Arnold Horshak**
 
 ---
 
