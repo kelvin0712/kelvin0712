@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winning is nice if you don't lose your integrity in the process.**_
+_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
 <br/>
 <br />
-**Arnold Horshak**
+**Greg Child**
 
 ---
 
