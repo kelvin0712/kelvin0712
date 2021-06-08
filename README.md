@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.**_
+_**Sometimes you climb out of bed in the morning and you think, I'm not going to make it, but you laugh inside - remembering all the times you've felt that way.**_
 <br/>
 <br />
-**Charles F. Kettering**
+**Charles Bukowski**
 
 ---
 
