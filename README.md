@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You must be the change you want to see in the world..**_
+_**Do the best you can until you know better. Then when you know better, do better.**_
 <br/>
 <br />
-**M.K. Gandhi**
+**Maya Angelou**
 
 ---
 
