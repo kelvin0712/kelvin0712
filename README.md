@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**He who is not courageous enough to take risks will accomplish nothing in life.**_
+_**Vulnerability is not winning or losing; it's having the courage to show up and be seen when we have no control over the outcome.**_
 <br/>
 <br />
-**Mohamad Ali**
+**Brene Brown**
 
 ---
 
