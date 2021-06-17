@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Vulnerability is not winning or losing; it's having the courage to show up and be seen when we have no control over the outcome.**_
+_**From now on we live in a world where man has walked on the Moon. It's not a miracle; we just decided to go.**_
 <br/>
 <br />
-**Brene Brown**
+**Tom Hanks**
 
 ---
 
