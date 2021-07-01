@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stop complaining. Start creating.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 <br/>
 <br />
-**Dale Patridge**
+**Japanese Proverb**
 
 ---
 
