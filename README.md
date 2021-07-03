@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
+_**Vulnerability is not winning or losing; it's having the courage to show up and be seen when we have no control over the outcome.**_
 <br/>
 <br />
-**Jack Ma**
+**Brene Brown**
 
 ---
 
