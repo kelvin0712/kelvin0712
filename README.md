@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**I always advice people - Don't wait ! Do something when you are young, when you have no responsibilities. Invest time in yourself to have great Experiences that are going to enrich you, then you can't possibly lose.**_
+_**Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.**_
 <br/>
 <br />
-**Steve Jobs**
+**Isaac Lidsky**
 
 ---
 
