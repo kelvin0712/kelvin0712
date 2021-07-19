@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**The free soul is rare, but you know it when you see it - basically because you feel good, very good, when you are near or with them.**_
 <br/>
 <br />
-**Honore de Balzac**
+**Charles Bukowski**
 
 ---
 
