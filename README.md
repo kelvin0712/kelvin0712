@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The tennis ball doesn't know how old I am. The ball doesn't know if I'm a man or a woman or if I come from a communist country or not. Sport has always broken down these barriers.**_
+_**When you win, say nothing. When you lose, say less.**_
 <br/>
 <br />
-**Martina Navratilova**
+**Paul Brown**
 
 ---
 
