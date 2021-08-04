@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Sustenance! Your health is always the best prescription.**_
+_**If you want to make your dreams come true, the first thing you have to do is wake up.**_
 <br/>
 <br />
-**Lorii Myers**
+**J.M. Power**
 
 ---
 
