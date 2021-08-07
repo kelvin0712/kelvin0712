@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When there is no distraction, there is clarity.**_
+_**The last time doesn't exist. It's only this time. And everything is going to be different this time. There's only now.**_
 <br/>
 <br />
-**Lorii Myers**
+**Bill Murray**
 
 ---
 
