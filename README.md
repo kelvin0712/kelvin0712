@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Vision without action is daydream. Action without vision is nightmare..**_
+_**Whether you think you can or think you can't, you're right..**_
 <br/>
 <br />
-**Japanese Proverb**
+**Henry Ford**
 
 ---
 
