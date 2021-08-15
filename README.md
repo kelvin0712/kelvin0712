@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**In spite of everything I shall rise again: I will take up my pencil, which I have forsaken in my great discouragement, and I will go on with my drawing.**_
+_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
 <br/>
 <br />
-**Vincent Van Gogh**
+**Christiane Northrup**
 
 ---
 
