@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
+_**Persistence is very important. You should not give up unless you are forced to give up.**_
 <br/>
 <br />
-**Jean Shinoda Bolen**
+**Elon Musk**
 
 ---
 
