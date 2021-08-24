@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you don't have confidence, you'll always find a way not to win**_
+_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
 <br/>
 <br />
-**Carl Lewis**
+**Greg Child**
 
 ---
 
