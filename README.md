@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Your life does not get better by chance. It gets better by change.**_
+_**The real opportunity for success lies within the person and not in the job.**_
 <br/>
 <br />
-**Jim Rohn**
+**Zig Ziglar**
 
 ---
 
