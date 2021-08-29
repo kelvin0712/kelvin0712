@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**A show of confidence raises the bar**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Lorii Myers**
 
 ---
 
