@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You gotta commit. You've gotta go out there and improvise and you've gotta be completely unafraid to die. You've got to be able to take a chance to die. And you have to die lots. You have to die all the time.**_
+_**At that point where you have decided to upgrade from aspiration to expectation and have begun to visualize an outcome, something incredibly important has happened, you have committed to the process of change.**_
 <br/>
 <br />
-**Bill Murray**
+**Lorii Myers**
 
 ---
 
