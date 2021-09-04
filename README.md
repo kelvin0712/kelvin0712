@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When you win, say nothing. When you lose, say less.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 <br/>
 <br />
-**Paul Brown**
+**Japanese Proverb**
 
 ---
 
