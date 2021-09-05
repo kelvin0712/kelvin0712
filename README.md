@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Vision without action is daydream. Action without vision is nightmare..**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 <br/>
 <br />
-**Japanese Proverb**
+**Honore de Balzac**
 
 ---
 
