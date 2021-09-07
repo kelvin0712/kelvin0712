@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**There's such a thin line between winning and losing.**_
+_**Some men see things as they are and say why.. I dream things that never were and say why not.**_
 <br/>
 <br />
-**John R. Tunis**
+**George Bernard Shaw**
 
 ---
 
