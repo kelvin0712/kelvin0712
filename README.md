@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Sustenance! Your health is always the best prescription.**_
+_**The real opportunity for success lies within the person and not in the job.**_
 <br/>
 <br />
-**Lorii Myers**
+**Zig Ziglar**
 
 ---
 
