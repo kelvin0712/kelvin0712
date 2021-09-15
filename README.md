@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The real opportunity for success lies within the person and not in the job.**_
+_**Stress is like a pulse, if you have it you are alive.**_
 <br/>
 <br />
-**Zig Ziglar**
+**Steve Maraboli**
 
 ---
 
