@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stress is like a pulse, if you have it you are alive.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 <br/>
 <br />
-**Steve Maraboli**
+**Japanese Proverb**
 
 ---
 
