@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Do the best you can until you know better. Then when you know better, do better.**_
+_**Effort only fully releases its reward after a person refuses to quit.**_
 <br/>
 <br />
-**Maya Angelou**
+**Napoleon Hill**
 
 ---
 
