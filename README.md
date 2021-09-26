@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**There's such a thin line between winning and losing.**_
+_**Stop complaining. Start creating.**_
 <br/>
 <br />
-**John R. Tunis**
+**Dale Patridge**
 
 ---
 
