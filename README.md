@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Don't be tempted to break momentum-work through it.**_
+_**Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.**_
 <br/>
 <br />
-**Lorii Myers**
+**Charles F. Kettering**
 
 ---
 
