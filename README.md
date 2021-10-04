@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Named must your fear be before banish it you can.**_
+_**It wasn't raining when Noah built the ark..**_
 <br/>
 <br />
-**Yoda**
+**Howard Ruff**
 
 ---
 
