@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**It wasn't raining when Noah built the ark..**_
+_**Remember that you are very special, no one can play your role better than you.**_
 <br/>
 <br />
-**Howard Ruff**
+**Damayanti Patra**
 
 ---
 
