@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Remember that you are very special, no one can play your role better than you.**_
+_**You will never win if you never begin.**_
 <br/>
 <br />
-**Damayanti Patra**
+**Helen Rowland**
 
 ---
 
