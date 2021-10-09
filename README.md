@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 <br/>
 <br />
-**Charles F. Kettering**
+**Japanese Proverb**
 
 ---
 
