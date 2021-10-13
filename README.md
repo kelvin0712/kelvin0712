@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you don't have confidence, you'll always find a way not to win**_
+_**A show of confidence raises the bar**_
 <br/>
 <br />
-**Carl Lewis**
+**Lorii Myers**
 
 ---
 
