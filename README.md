@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**A show of confidence raises the bar**_
+_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
 <br/>
 <br />
-**Lorii Myers**
+**Jean Shinoda Bolen**
 
 ---
 
