@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
+_**The real opportunity for success lies within the person and not in the job.**_
 <br/>
 <br />
-**Jean Shinoda Bolen**
+**Zig Ziglar**
 
 ---
 
