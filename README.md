@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
+_**Your life does not get better by chance. It gets better by change.**_
 <br/>
 <br />
-**Greg Child**
+**Jim Rohn**
 
 ---
 
