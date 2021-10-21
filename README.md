@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Your life does not get better by chance. It gets better by change.**_
+_**Effort only fully releases its reward after a person refuses to quit.**_
 <br/>
 <br />
-**Jim Rohn**
+**Napoleon Hill**
 
 ---
 
