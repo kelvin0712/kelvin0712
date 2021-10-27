@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you have dreams it is your responsibility to make them happen.**_
+_**Stress is like a pulse, if you have it you are alive.**_
 <br/>
 <br />
-**Bel Pesce**
+**Steve Maraboli**
 
 ---
 
