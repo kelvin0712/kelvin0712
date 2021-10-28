@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stress is like a pulse, if you have it you are alive.**_
+_**You defeated me But you won't defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).**_
 <br/>
 <br />
-**Steve Maraboli**
+**Edmund Hillary**
 
 ---
 
