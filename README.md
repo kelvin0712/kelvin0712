@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The man who removes a mountain begins by carrying away small stones..**_
+_**When you win, say nothing. When you lose, say less.**_
 <br/>
 <br />
-**Chinese Proverb**
+**Paul Brown**
 
 ---
 
