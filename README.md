@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You will never win if you never begin.**_
+_**Win any way as long as you can get away with it. Nice guys finish last.**_
 <br/>
 <br />
-**Helen Rowland**
+**Leo Durocher**
 
 ---
 
