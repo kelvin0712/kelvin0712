@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winning is nice if you don't lose your integrity in the process.**_
+_**Stress is like a pulse, if you have it you are alive.**_
 <br/>
 <br />
-**Arnold Horshak**
+**Steve Maraboli**
 
 ---
 
