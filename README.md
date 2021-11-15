@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stress is like a pulse, if you have it you are alive.**_
+_**Winning isn't everything.. It's the only thing.**_
 <br/>
 <br />
-**Steve Maraboli**
+**Vincent van Gogh**
 
 ---
 
