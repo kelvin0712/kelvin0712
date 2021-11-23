@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**From now on we live in a world where man has walked on the Moon. It's not a miracle; we just decided to go.**_
+_**We don't have to do all of it alone. We were never meant to.**_
 <br/>
 <br />
-**Tom Hanks**
+**Brene Brown**
 
 ---
 
