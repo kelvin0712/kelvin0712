@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Don't be tempted to break momentum-work through it.**_
+_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
 <br/>
 <br />
-**Lorii Myers**
+**Ray Kroc**
 
 ---
 
