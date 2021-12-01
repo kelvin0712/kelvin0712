@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**A man who has no imagination has no wings.**_
 <br/>
 <br />
-**Ray Kroc**
+**Mohamad Ali**
 
 ---
 
