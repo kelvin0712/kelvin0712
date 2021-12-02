@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**A man who has no imagination has no wings.**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 <br/>
 <br />
-**Mohamad Ali**
+**Arnold Horshak**
 
 ---
 
