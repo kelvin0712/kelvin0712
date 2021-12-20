@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**We don't have to do all of it alone. We were never meant to.**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 <br/>
 <br />
-**Brene Brown**
+**Arnold Horshak**
 
 ---
 
