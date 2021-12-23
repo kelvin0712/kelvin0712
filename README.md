@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The journey of a thousand miles begins with one step.**_
+_**A quitter never wins and a winner never quits**_
 <br/>
 <br />
-**Lao Tzu**
+**Napoleon Hill**
 
 ---
 
