@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stop complaining. Start creating.**_
+_**Our words are buttressed by our deeds, and our deeds are inspired by our convictions.**_
 <br/>
 <br />
-**Dale Patridge**
+**Theodore Hesburgh**
 
 ---
 
