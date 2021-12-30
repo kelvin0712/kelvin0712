@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Named must your fear be before banish it you can.**_
+_**When you win, say nothing. When you lose, say less.**_
 <br/>
 <br />
-**Yoda**
+**Paul Brown**
 
 ---
 
