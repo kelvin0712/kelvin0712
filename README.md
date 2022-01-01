@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If I work as hard as I can, I wonder how much I can do in a day?**_
+_**You are very powerful, provided you know how powerful you are.**_
 <br/>
 <br />
-**Ezra Taft Benson**
+**Yogi Bhajan**
 
 ---
 
