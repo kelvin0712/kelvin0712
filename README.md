@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you're changing the world, you're working on important things. You're excited to get up in the morning.**_
+_**It wasn't raining when Noah built the ark..**_
 <br/>
 <br />
-**Larry Page**
+**Howard Ruff**
 
 ---
 
