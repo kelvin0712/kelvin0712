@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**It wasn't raining when Noah built the ark..**_
+_**You will never win if you never begin.**_
 <br/>
 <br />
-**Howard Ruff**
+**Helen Rowland**
 
 ---
 
