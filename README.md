@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**A loser doesn't know what he'll do if he loses, but talks about what he'll do if he wins, and a winner doesn't talk about what he'll do if he wins, but knows what he'll do if he loses.**_
+_**The last time doesn't exist. It's only this time. And everything is going to be different this time. There's only now.**_
 <br/>
 <br />
-**null**
+**Bill Murray**
 
 ---
 
