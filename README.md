@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
+_**When you win, say nothing. When you lose, say less.**_
 <br/>
 <br />
-**Lorii Myers**
+**Paul Brown**
 
 ---
 
