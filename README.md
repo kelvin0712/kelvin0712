@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Excellence prospers in the absence of excuses.**_
+_**A quitter never wins and a winner never quits**_
 <br/>
 <br />
-**Lorii Myers**
+**Napoleon Hill**
 
 ---
 
