@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**People who are crazy enough to think they can change the world, are the ones who do.**_
+_**By failing to prepare, you are preparing to fail.**_
 <br/>
 <br />
-**Apple Computers**
+**Benjamin Franklin**
 
 ---
 
