@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Let our advance worrying become advance thinking and planning.**_
+_**When you win, say nothing. When you lose, say less.**_
 <br/>
 <br />
-**Winston Churchill**
+**Paul Brown**
 
 ---
 
