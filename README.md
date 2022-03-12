@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**Great things are done by a series of small things brought together.**_
 <br/>
 <br />
-**Ray Kroc**
+**Vincent Van Gogh**
 
 ---
 
