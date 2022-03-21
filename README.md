@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stop complaining. Start creating.**_
+_**Let our advance worrying become advance thinking and planning.**_
 <br/>
 <br />
-**Dale Patridge**
+**Winston Churchill**
 
 ---
 
