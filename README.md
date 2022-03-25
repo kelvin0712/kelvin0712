@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The real opportunity for success lies within the person and not in the job.**_
+_**It isn't what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.**_
 <br/>
 <br />
-**Zig Ziglar**
+**Dale Carnegie**
 
 ---
 
