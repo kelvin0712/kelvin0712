@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You defeated me But you won't defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Edmund Hillary**
+**{%AUTHOR%}**
 
 ---
 
