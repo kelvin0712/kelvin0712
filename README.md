@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.**_
+_**We don't have to do all of it alone. We were never meant to.**_
 <br/>
 <br />
-**Steve Maraboli**
+**Brene Brown**
 
 ---
 
