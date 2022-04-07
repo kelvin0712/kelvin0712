@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winning isn't everything.. It's the only thing.**_
+_**Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.**_
 <br/>
 <br />
-**Vincent van Gogh**
+**Zaha Hadid**
 
 ---
 
