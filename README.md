@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Whether you think you can or think you can't, you're right..**_
+_**I am an optimist. It does not seem too much use being anything else..**_
 <br/>
 <br />
-**Henry Ford**
+**Winston Churchill**
 
 ---
 
