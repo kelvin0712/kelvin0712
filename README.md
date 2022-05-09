@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Don't use all-or-nothing thinking. Take each day as its own day, and don't worry about it if you mess up one day. The most important thing you can do is just get back up on the horse.**_
+_**If you are born poor, it is not your mistake. But if you die poor it is your mistake.**_
 <br/>
 <br />
-**Henry Cloud**
+**Bill Gates**
 
 ---
 
