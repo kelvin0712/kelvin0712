@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you have dreams it is your responsibility to make them happen.**_
+_**At that point where you have decided to upgrade from aspiration to expectation and have begun to visualize an outcome, something incredibly important has happened, you have committed to the process of change.**_
 <br/>
 <br />
-**Bel Pesce**
+**Lorii Myers**
 
 ---
 
