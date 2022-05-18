@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winners lose much more often than losers. So if you keep losing but you're still trying, keep it up! You.. Re right on track.**_
+_**The determination to win is the better part of winning.**_
 <br/>
 <br />
-**Matthew Keith Groves**
+**Daisaku Ikeda**
 
 ---
 
