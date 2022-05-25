@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Your life does not get better by chance. It gets better by change.**_
+_**Sometimes you climb out of bed in the morning and you think, I'm not going to make it, but you laugh inside - remembering all the times you've felt that way.**_
 <br/>
 <br />
-**Jim Rohn**
+**Charles Bukowski**
 
 ---
 
