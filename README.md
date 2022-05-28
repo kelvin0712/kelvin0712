@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Japanese Proverb**
 
 ---
 
