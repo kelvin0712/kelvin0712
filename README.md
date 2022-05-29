@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Vision without action is daydream. Action without vision is nightmare..**_
+_**There's such a thin line between winning and losing.**_
 <br/>
 <br />
-**Japanese Proverb**
+**John R. Tunis**
 
 ---
 
