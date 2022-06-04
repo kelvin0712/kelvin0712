@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Don't be tempted to break momentum-work through it.**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Lorii Myers**
+**{%AUTHOR%}**
 
 ---
 
