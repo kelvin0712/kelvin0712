@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**What you do speaks so loudly that I cannot hear what you say.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Ralph Waldo Emerson**
 
 ---
 
