@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You must be the change you want to see in the world..**_
+_**A show of confidence raises the bar**_
 <br/>
 <br />
-**M.K. Gandhi**
+**Lorii Myers**
 
 ---
 
