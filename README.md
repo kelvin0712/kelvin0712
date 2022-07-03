@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Named must your fear be before banish it you can.**_
+_**When there is no distraction, there is clarity.**_
 <br/>
 <br />
-**Yoda**
+**Lorii Myers**
 
 ---
 
