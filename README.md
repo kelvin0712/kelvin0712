@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Let our advance worrying become advance thinking and planning.**_
+_**You are very powerful, provided you know how powerful you are.**_
 <br/>
 <br />
-**Winston Churchill**
+**Yogi Bhajan**
 
 ---
 
