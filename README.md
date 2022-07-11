@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Whether you think you can or think you can't, you're right..**_
+_**You must be the change you want to see in the world..**_
 <br/>
 <br />
-**Henry Ford**
+**M.K. Gandhi**
 
 ---
 
