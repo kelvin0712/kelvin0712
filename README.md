@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Perfection is not attainable, but if we chase perfection we can catch excellence..**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 <br/>
 <br />
-**Vince Lombardi**
+**Honore de Balzac**
 
 ---
 
