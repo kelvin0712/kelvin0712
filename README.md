@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Never waste your time trying to explain who you are to people who are committed to misunderstanding you.**_
+_**A quitter never wins and a winner never quits**_
 <br/>
 <br />
-**Dream Hampton**
+**Napoleon Hill**
 
 ---
 
