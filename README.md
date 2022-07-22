@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**A quitter never wins and a winner never quits**_
+_**Sometimes the bravest and most important thing you can do is just show up.**_
 <br/>
 <br />
-**Napoleon Hill**
+**Brene Brown**
 
 ---
 
