@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Sometimes the bravest and most important thing you can do is just show up.**_
+_**Time to improve is limited. The clock is always on and doesn't care if you don't feel like it. Someone else does and they're passing you by.**_
 <br/>
 <br />
-**Brene Brown**
+**William James Moore**
 
 ---
 
