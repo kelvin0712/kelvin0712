@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you have dreams it is your responsibility to make them happen.**_
+_**Where there is ruin, there is hope for a treasure.**_
 <br/>
 <br />
-**Bel Pesce**
+**Rumi**
 
 ---
 
