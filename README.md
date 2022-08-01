@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Where there is ruin, there is hope for a treasure.**_
+_**You are very powerful, provided you know how powerful you are.**_
 <br/>
 <br />
-**Rumi**
+**Yogi Bhajan**
 
 ---
 
