@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You are very powerful, provided you know how powerful you are.**_
+_**Beyond a certain point there is no return. This point has to be reached.**_
 <br/>
 <br />
-**Yogi Bhajan**
+**Franz Kafka**
 
 ---
 
