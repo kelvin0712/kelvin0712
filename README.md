@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Beyond a certain point there is no return. This point has to be reached.**_
+_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
 <br/>
 <br />
-**Franz Kafka**
+**Christiane Northrup**
 
 ---
 
