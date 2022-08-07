@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Vision without action is daydream. Action without vision is nightmare..**_
+_**Excellence prospers in the absence of excuses.**_
 <br/>
 <br />
-**Japanese Proverb**
+**Lorii Myers**
 
 ---
 
