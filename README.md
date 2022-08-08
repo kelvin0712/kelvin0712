@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Excellence prospers in the absence of excuses.**_
+_**Whether you think you can or think you can't, you're right..**_
 <br/>
 <br />
-**Lorii Myers**
+**Henry Ford**
 
 ---
 
