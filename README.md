@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Whether you think you can or think you can't, you're right..**_
+_**When you win, say nothing. When you lose, say less.**_
 <br/>
 <br />
-**Henry Ford**
+**Paul Brown**
 
 ---
 
