@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**An aspirational diet will have you dreaming of success; but it's the attachment of expectations and tangible goals that feeds the desire, persistence, and fortitude required to make the win.**_
+_**You must be the change you want to see in the world..**_
 <br/>
 <br />
-**Lorii Myers**
+**M.K. Gandhi**
 
 ---
 
