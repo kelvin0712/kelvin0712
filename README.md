@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You must be the change you want to see in the world..**_
+_**You make a living by what you earn; you make a life by what you give.**_
 <br/>
 <br />
-**M.K. Gandhi**
+**Winston Churchill**
 
 ---
 
