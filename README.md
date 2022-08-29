@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**Stop complaining. Start creating.**_
 <br/>
 <br />
-**Ray Kroc**
+**Dale Patridge**
 
 ---
 
