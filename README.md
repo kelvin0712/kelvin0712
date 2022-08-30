@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stop complaining. Start creating.**_
+_**The determination to win is the better part of winning.**_
 <br/>
 <br />
-**Dale Patridge**
+**Daisaku Ikeda**
 
 ---
 
