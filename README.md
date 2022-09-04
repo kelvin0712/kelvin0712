@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Do not let what you cannot do interfere with what you can do.**_
+_**Logic will get you from A to B. Imagination will take you everywhere.**_
 <br/>
 <br />
-**John Wooden**
+**Albert Einstein**
 
 ---
 
