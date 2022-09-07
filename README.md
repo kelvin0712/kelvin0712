@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**When it comes to winning, you need the skill and the will.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Frank Tyger**
 
 ---
 
