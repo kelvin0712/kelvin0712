@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When it comes to winning, you need the skill and the will.**_
+_**I know for sure that what we dwell on is who we become.**_
 <br/>
 <br />
-**Frank Tyger**
+**Oprah Winfrey**
 
 ---
 
