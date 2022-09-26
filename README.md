@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You must have a positive self perception in order to transcend anything.**_
+_**Effort only fully releases its reward after a person refuses to quit.**_
 <br/>
 <br />
-**Steve Maraboli**
+**Napoleon Hill**
 
 ---
 
