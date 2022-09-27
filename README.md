@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Effort only fully releases its reward after a person refuses to quit.**_
+_**The determination to win is the better part of winning.**_
 <br/>
 <br />
-**Napoleon Hill**
+**Daisaku Ikeda**
 
 ---
 
