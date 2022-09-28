@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The determination to win is the better part of winning.**_
+_**He who is not courageous enough to take risks will accomplish nothing in life.**_
 <br/>
 <br />
-**Daisaku Ikeda**
+**Mohamad Ali**
 
 ---
 
