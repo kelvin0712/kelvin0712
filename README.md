@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**Winning is not everything, but the effort to win is.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Zig Ziglar**
 
 ---
 
