@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winning is not everything, but the effort to win is.**_
+_**Excellence prospers in the absence of excuses.**_
 <br/>
 <br />
-**Zig Ziglar**
+**Lorii Myers**
 
 ---
 
