@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
+_**A successful man is one who can lay a firm foundation with the bricks that others throw at him.**_
 <br/>
 <br />
-**Mohamad Ali**
+**Sidney Greenberg**
 
 ---
 
