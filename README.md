@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**A successful man is one who can lay a firm foundation with the bricks that others throw at him.**_
+_**We lose ourselves in the things we love. We find ourselves there, too.**_
 <br/>
 <br />
-**Sidney Greenberg**
+**Dale Patridge**
 
 ---
 
