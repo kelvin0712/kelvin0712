@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**We lose ourselves in the things we love. We find ourselves there, too.**_
+_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
 <br/>
 <br />
-**Dale Patridge**
+**Jean Shinoda Bolen**
 
 ---
 
