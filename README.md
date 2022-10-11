@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**I know for sure that what we dwell on is who we become.**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Oprah Winfrey**
+**{%AUTHOR%}**
 
 ---
 
