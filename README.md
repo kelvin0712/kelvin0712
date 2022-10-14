@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Vision without action is daydream. Action without vision is nightmare..**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 <br/>
 <br />
-**Japanese Proverb**
+**Arnold Horshak**
 
 ---
 
