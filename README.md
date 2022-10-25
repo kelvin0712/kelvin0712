@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Don't count the days; make the days count.**_
+_**The journey of a thousand miles begins with one step.**_
 <br/>
 <br />
-**Mohamad Ali**
+**Lao Tzu**
 
 ---
 
