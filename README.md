@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**The journey of a thousand miles begins with one step.**_
+_**What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!**_
 <br/>
 <br />
-**Lao Tzu**
+**Larry Page**
 
 ---
 
