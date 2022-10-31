@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**A man who has no imagination has no wings.**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Mohamad Ali**
+**{%AUTHOR%}**
 
 ---
 
