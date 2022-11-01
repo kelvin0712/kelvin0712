@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**Let our advance worrying become advance thinking and planning.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Winston Churchill**
 
 ---
 
