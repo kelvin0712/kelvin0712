@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**A show of confidence raises the bar**_
+_**It wasn't raining when Noah built the ark..**_
 <br/>
 <br />
-**Lorii Myers**
+**Howard Ruff**
 
 ---
 
