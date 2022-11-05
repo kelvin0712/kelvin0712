@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**It wasn't raining when Noah built the ark..**_
+_**Stress is like a pulse, if you have it you are alive.**_
 <br/>
 <br />
-**Howard Ruff**
+**Steve Maraboli**
 
 ---
 
