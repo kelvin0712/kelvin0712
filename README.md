@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**The best way to predict the future is to create it.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Abraham Lincoln**
 
 ---
 
