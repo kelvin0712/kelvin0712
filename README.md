@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Honore de Balzac**
+**{%AUTHOR%}**
 
 ---
 
