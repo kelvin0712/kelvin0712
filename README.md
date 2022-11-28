@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Jean Shinoda Bolen**
+**{%AUTHOR%}**
 
 ---
 
