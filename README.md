@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**{%QUOTE%}**_
+_**You will never win if you never begin.**_
 <br/>
 <br />
-**{%AUTHOR%}**
+**Helen Rowland**
 
 ---
 
