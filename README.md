@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Win any way as long as you can get away with it. Nice guys finish last.**_
+_**Failure is the condiment that gives success its flavor.**_
 <br/>
 <br />
-**Leo Durocher**
+**Truman Capote**
 
 ---
 
