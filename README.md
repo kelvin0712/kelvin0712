@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Failure is the condiment that gives success its flavor.**_
+_**Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.**_
 <br/>
 <br />
-**Truman Capote**
+**Veronica A. Shoffstall**
 
 ---
 
