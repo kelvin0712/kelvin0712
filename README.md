@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.**_
+_**Whether you think you can or think you can't, you're right..**_
 <br/>
 <br />
-**Veronica A. Shoffstall**
+**Henry Ford**
 
 ---
 
