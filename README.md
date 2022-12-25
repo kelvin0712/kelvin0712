@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Find a purpose in life so big it will challenge every capacity to be at your best.**_
+_**Let our advance worrying become advance thinking and planning.**_
 <br/>
 <br />
-**David O. McKay**
+**Winston Churchill**
 
 ---
 
