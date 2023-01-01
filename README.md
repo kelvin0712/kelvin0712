@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Extend beyond your preconceived limits!**_
+_**You must have a positive self perception in order to transcend anything.**_
 <br/>
 <br />
-**Lorii Myers**
+**Steve Maraboli**
 
 ---
 
