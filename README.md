@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**You must have a positive self perception in order to transcend anything.**_
+_**Excellence prospers in the absence of excuses.**_
 <br/>
 <br />
-**Steve Maraboli**
+**Lorii Myers**
 
 ---
 
