@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Remember that you are very special, no one can play your role better than you.**_
+_**Sustenance! Your health is always the best prescription.**_
 <br/>
 <br />
-**Damayanti Patra**
+**Lorii Myers**
 
 ---
 
