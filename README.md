@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winning is nice if you don't lose your integrity in the process.**_
+_**Winning is not everything, but the effort to win is.**_
 <br/>
 <br />
-**Arnold Horshak**
+**Zig Ziglar**
 
 ---
 
