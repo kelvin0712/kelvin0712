@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Winning is not everything, but the effort to win is.**_
+_**Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.**_
 <br/>
 <br />
-**Zig Ziglar**
+**Isaac Lidsky**
 
 ---
 
