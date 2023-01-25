@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**In spite of everything I shall rise again: I will take up my pencil, which I have forsaken in my great discouragement, and I will go on with my drawing.**_
+_**There's such a thin line between winning and losing.**_
 <br/>
 <br />
-**Vincent Van Gogh**
+**John R. Tunis**
 
 ---
 
