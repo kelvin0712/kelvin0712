@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Some men see things as they are and say why.. I dream things that never were and say why not.**_
+_**I am an optimist. It does not seem too much use being anything else..**_
 <br/>
 <br />
-**George Bernard Shaw**
+**Winston Churchill**
 
 ---
 
