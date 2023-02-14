@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Persistence is very important. You should not give up unless you are forced to give up.**_
+_**If you want to make your dreams come true, the first thing you have to do is wake up.**_
 <br/>
 <br />
-**Elon Musk**
+**J.M. Power**
 
 ---
 
