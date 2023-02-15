@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you want to make your dreams come true, the first thing you have to do is wake up.**_
+_**Keep a positive mind. Remember, a failed attempt doesn't make you a failure-giving up does.**_
 <br/>
 <br />
-**J.M. Power**
+**Lorii Myers**
 
 ---
 
