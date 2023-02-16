@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Keep a positive mind. Remember, a failed attempt doesn't make you a failure-giving up does.**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 <br/>
 <br />
-**Lorii Myers**
+**Honore de Balzac**
 
 ---
 
