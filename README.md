@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Stop complaining. Start creating.**_
+_**If you cannot do great things, do small things in a great way.**_
 <br/>
 <br />
-**Dale Patridge**
+**Napoleon Hill**
 
 ---
 
