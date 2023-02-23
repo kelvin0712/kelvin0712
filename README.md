@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**If you cannot do great things, do small things in a great way.**_
+_**Failure is the condiment that gives success its flavor.**_
 <br/>
 <br />
-**Napoleon Hill**
+**Truman Capote**
 
 ---
 
