@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Failure is the condiment that gives success its flavor.**_
+_**Things are not bad in themselves, but our cowardice makes them so.**_
 <br/>
 <br />
-**Truman Capote**
+**Michel de Montaigne**
 
 ---
 
