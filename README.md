@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!**_
+_**We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light**_
 <br/>
 <br />
-**Daireth Winehouse**
+**Mary Dunbar**
 
 ---
 
