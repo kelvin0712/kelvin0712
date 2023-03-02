@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
+_**Stress is like a pulse, if you have it you are alive.**_
 <br/>
 <br />
-**Lorii Myers**
+**Steve Maraboli**
 
 ---
 
