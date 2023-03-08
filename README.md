@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**There's such a thin line between winning and losing.**_
+_**Whether you think you can or think you can't, you're right..**_
 <br/>
 <br />
-**John R. Tunis**
+**Henry Ford**
 
 ---
 
