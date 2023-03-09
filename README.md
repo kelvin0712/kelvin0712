@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Whether you think you can or think you can't, you're right..**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Henry Ford**
+**{%AUTHOR%}**
 
 ---
 
