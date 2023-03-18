@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**I am an optimist. It does not seem too much use being anything else..**_
+_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
 <br/>
 <br />
-**Winston Churchill**
+**Phil Grimshaw**
 
 ---
 
