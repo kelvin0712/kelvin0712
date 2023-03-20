@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Sustenance! Your health is always the best prescription.**_
+_**Your overnight success story is always a result of everything you have done in your life until that moment.**_
 <br/>
 <br />
-**Lorii Myers**
+**Bel Pesce**
 
 ---
 
