@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Your overnight success story is always a result of everything you have done in your life until that moment.**_
+_**A man can suffer to bring a group of people to success, not the other way.**_
 <br/>
 <br />
-**Bel Pesce**
+**Ganesh**
 
 ---
 
