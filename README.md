@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Beyond a certain point there is no return. This point has to be reached.**_
+_**When there is no distraction, there is clarity.**_
 <br/>
 <br />
-**Franz Kafka**
+**Lorii Myers**
 
 ---
 
