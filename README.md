@@ -36,10 +36,10 @@
 
 ### **Daily quote**
 
-_**Hang Out with People Who are Better than You.**_
+_**{%QUOTE%}**_
 <br/>
 <br />
-**Warren Buffett**
+**{%AUTHOR%}**
 
 ---
 
