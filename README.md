@@ -31,12 +31,3 @@
 <img width="35px" height="35px" hspace="3" src="https://img.icons8.com/color/48/000000/mongodb.png"/>
 <img width="35px" height="35px" hspace="3" src="https://img.icons8.com/color/48/000000/docker.png"/>
 <img width="35px" height="35px" hspace="3" src="https://img.icons8.com/color/48/000000/git.png"/>
-
----
-
-<details>
-  <summary><strong >Github Stats</strong></summary>
-
-  <img align="left" alt="kelvin's Github Stats" src="https://github-readme-stats.codestackr.vercel.app/api?username=kelvin0712&show_icons=true&hide_border=true&count_private=true" />
-
-</details>
