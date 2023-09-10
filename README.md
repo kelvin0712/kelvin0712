@@ -3,7 +3,7 @@
 ## I'm a Developer, and Pianist!
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2021 Goals: Contribute more to the community, and do more Open Source projects.
+- 🥅 2023 Goals: Contribute more to the community, and do more Open Source projects.
 - ⚡ Fun fact: I love to table tennis, tennis, basketball and photographing.
 
 ### **Connect with me**
