@@ -34,15 +34,6 @@
 
 ---
 
-### **Daily quote**
-
-_**{%QUOTE%}**_
-<br/>
-<br />
-**{%AUTHOR%}**
-
----
-
 <details>
   <summary><strong >Github Stats</strong></summary>
 
